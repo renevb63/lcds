@@ -33,3 +33,4 @@ Alex de México
 
 Juan Delgado de Colombia
 
+René de Santa Cruz de Tenerife, Islas Canarias, España
